@@ -23,9 +23,9 @@ Description.
 
 ```
 
-I'm still branched thr with a narrative of rules
-It's a sacriledge of fools, better quit while you good
-I'm just done with the aforementioned bending of the rules
+I'm still branched with a narrative of rules
+Just a sacriledge of fools, better quit while you good
+I'm truly done with the aforementioned bending of the rules
 
 Sickening is round round round
 Blood is circling round the crown 
